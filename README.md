@@ -35,9 +35,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-One of the sermons preach't to the Lords of the High Court of Parliament, in their solemne fast held
+
 #####Body#####
-One of the sermons preach't to the Lords of the High Court of Parliament, in their solemne fast held
+Acts 2. 37, 38, 40.37, Now when they heard this, they were pricked in their hearts, and ſaid to Pete
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
